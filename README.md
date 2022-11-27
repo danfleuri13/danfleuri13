@@ -1,5 +1,5 @@
 # 💫 Sobre mim:
-Operador de Audio no Vikings Pub e na TV pai Eterno<br>Dev. FullStack Jr.<br>Amante de musica e games!
+🎸🎤Operador de Audio no Vikings Pub e na TV pai Eterno<br>🖥️Dev. FullStack Jr.<br>🎵Amante de musica e games!<br>🐈‍⬛🐈Amo gatinhos
 
 
 ## 🌐 Redes sociais:
