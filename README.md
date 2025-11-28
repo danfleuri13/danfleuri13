@@ -1,5 +1,5 @@
 # 💫 Sobre mim:
-🎸🎤Operador de Audio no Vikings Pub <br>🖥️Dev. FullStack Jr./ Analista de dados<br>🎵Amante de musica e games!<br>🐈‍⬛🐈Amo gatinhos
+🖥️Dev. FullStack Jr./ Analista de dados<br>🎵Amante de musica e games!<br>🎸🎤Operador de Audio no Vikings Pub <br>🐈‍⬛🐈Amo gatinhos
 
 
 ## 🌐 Redes sociais:
